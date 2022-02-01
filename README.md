@@ -1,0 +1,4 @@
+- 👋 Olá sou a @LarissaAleviGuio13
+- 👀 Estou interssada em ter novos conhecimentos e, sempre em busca de novos desafios  !
+- 🌱 Atualmente estou estudando Analise e Desenvolvimento de sistemas. 
+- ✨ Amo a tecnologia e sempre procuro ficar por dentro das novidades !
